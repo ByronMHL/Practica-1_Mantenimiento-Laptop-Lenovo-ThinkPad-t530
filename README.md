@@ -1,0 +1,1 @@
+# Practica-1_Mantenimiento-Laptop-Lenovo-ThinkPad-t530
